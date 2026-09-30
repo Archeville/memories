@@ -8,3 +8,8 @@ i said that thing above. i revealed that i protected myself. how far can this go
 
 i met someone cool, his name is kira ? something with a heart on the "i", his discord is mda_wrs 1145497054844555265
 hope hes gonna last long, unlike others. 
+
+
+sep30 
+
+what the fuck was i on about?
